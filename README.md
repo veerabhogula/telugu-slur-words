@@ -1,0 +1,1 @@
+# telugu-slur-words
